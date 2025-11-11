@@ -1,3 +1,8 @@
+
+<img width="1113" height="616" alt="image" src="https://github.com/user-attachments/assets/263ed7d6-5f6a-44b7-abd9-9aa7bda143c4" />
+
+
+
 # 🚀 BitScanner 2026
 yt link: https://youtu.be/HIHTRHv9vvk
 
