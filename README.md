@@ -1,11 +1,17 @@
 
 <img width="1113" height="616" alt="image" src="https://github.com/user-attachments/assets/263ed7d6-5f6a-44b7-abd9-9aa7bda143c4" />
-<img width="1853" height="481" alt="image" src="https://github.com/user-attachments/assets/858fc208-d266-48a1-b675-075070f371f2" />
+
+<img width="1093" height="619" alt="image" src="https://github.com/user-attachments/assets/1084feed-72bb-4b94-abdd-cecb2c04f48a" />
+
+<img width="1111" height="620" alt="image" src="https://github.com/user-attachments/assets/246230b4-6628-4156-a320-84c197f0a9d0" />
+
 
 
 
 # 🚀 BitScanner 2026
 yt link: https://youtu.be/HIHTRHv9vvk
+
+https://youtu.be/I-nbXAKskSU
 
 contact: hacker001ethical@proton.me
 
